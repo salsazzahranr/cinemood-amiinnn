@@ -1,2 +1,0 @@
-# cinemood-amiinnn
-bismillah bisaaaa
